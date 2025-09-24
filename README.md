@@ -1,1 +1,2 @@
-# taller_1-de-info_2--
+Daniel Mauricio Vallejo Enriquez 
+Angel 
