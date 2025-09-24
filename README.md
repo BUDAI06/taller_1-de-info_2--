@@ -1,2 +1,2 @@
-Daniel Mauricio Vallejo Enriquez 
-Angel 
+Daniel Mauricio Vallejo Enriquez ----
+Luis Angel Caro Perez
